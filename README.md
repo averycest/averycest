@@ -1,5 +1,16 @@
- Hi i'll probably make this look good later on
- 
- I'd highly appreciate if the verity fandom **IWC** most of you guys are weird , all of you don't take it to heart. Thanks!
+# Info
+❤ I usually hang around bakery or spawn, fandom areas otherwise are uusally with friends! )<br>
+❤ please dont copy any of my skins! its okay 2 ask 4 inspo and i would also love 2 help out with making skins, dont be shy 2 ask. <br>
+❤ my avery skins i usually roam around with! 
+both new & old<br>
+<img width="150" alt="pony-town- #2  Avery , me-dance-4-blinking-padded-6x" src="https://github.com/user-attachments/assets/d39aed6a-2582-41b6-816f-9b463df76295" />
+<img width="150" alt="pony-town-kys@averycest kissyourself 💚!-dance-4-blinking-padded-6x" src="https://github.com/user-attachments/assets/3a354550-5324-4e2a-a4d5-edbb0c3715d6" />
 
- abc to start an avery love triangle
+##
+BYF/I , WIP
+-------
+Fandom please interact as this is a fandom account only apart from sfawtde &minecraft in general.
+
+<img width="500" height="354" alt="averycutie2" src="https://github.com/user-attachments/assets/0dfac902-142a-4f73-af8c-12985f986229" />
+
+##
