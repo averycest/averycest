@@ -10,7 +10,7 @@ both new & old<br>
 BYF/I , WIP
 -------
 Fandom please interact as this is a fandom account only apart from sfawtde &minecraft in general.
-
+C*h is enc even if it isn't in my name.
 <img width="500" height="354" alt="averycutie2" src="https://github.com/user-attachments/assets/0dfac902-142a-4f73-af8c-12985f986229" />
 
 ##
